@@ -2,5 +2,5 @@
 
 MEU NOME E JONY PRAZER
 
-![](https://tenor.com/pt-BR/view/lol-funny-broken-teeth-one-teeth-hahaha-gif-19517304)
+![](https://tenor.com/pt-BR/view/cr7eu-sou-melhor-gif-27119947)
 
