@@ -2,5 +2,6 @@
 
 MEU NOME E JONY PRAZER
 
-![]![chaos](https://github.com/user-attachments/assets/bd1d8ebb-afab-49cd-bf67-57587f14f7bb)
+![]![bad-teeth-hi](https://github.com/user-attachments/assets/73a58f39-abcf-46d8-a39f-7758f331d810)
+
 
