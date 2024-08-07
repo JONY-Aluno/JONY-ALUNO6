@@ -2,4 +2,5 @@
 
 MEU NOME E JONY PRAZER
 
-![](https://tenor.com/pt-BR/view/cr7-calma-gif-24452747)
+![]![chaos](https://github.com/user-attachments/assets/bd1d8ebb-afab-49cd-bf67-57587f14f7bb)
+
